@@ -32,6 +32,6 @@ To provide you with such content we need your support, so watching ads is mandat
 
 ---
 
-## Looking for Cheap Boosts, Nitros or other UHQ Tools?
-<img src="[https://media.discordapp.net/attachments/1149815449295536179/1150497912502112378/Screenshot_1041.png?width=1218&height=670](https://onepiecered.co/s?dlKv)" alt="">
+## [Looking for Cheap Boosts, Nitros or other UHQ Tools? ](https://boost4u.xyz/)
+<img src="https://media.discordapp.net/attachments/1149815449295536179/1150497912502112378/Screenshot_1041.png?width=1218&height=670" alt="">
 
